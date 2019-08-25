@@ -1,5 +1,5 @@
-# My Goals For 10th Grade 
 # "Take care of your morals first, your health next, and finally your studies." - Theodore Roosevelt's Father
+# My Goals For 10th Grade 
 
 Make IOL Camp.
 
